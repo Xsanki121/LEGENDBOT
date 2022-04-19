@@ -1,8 +1,8 @@
-[![LEGENDBOT](https://telegra.ph/file/2dfd3e6d9007aabffad92.jpg)](https://github.com/ITS-LEGENDBOT/LEGENDBOT)
+[![LEGENDBOT](https://telegra.ph/file/8ffde25f74f2931932b43.jpg)](https://github.com/ITS-LEGENDBOT/LEGENDBOT)
 
 
 <h1 align="center">
-<b> 『Lêɠêɳ̃dẞø†』 </b>
+<b> ☠🇩͢ɛ𝔣αᷝυɭȶᷧ͢εᷟƦ☠ </b>
 </h1>
 
 <h6 align="center">
